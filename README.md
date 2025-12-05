@@ -16,7 +16,7 @@ Good day dear ladies n gentlemen
 ────────────
 </p>
 <p align="center">
-sickness \ alexey
+ alexey
 </p>
 <p align="center">
 ru\eng  . discord : .sweetsickness01
